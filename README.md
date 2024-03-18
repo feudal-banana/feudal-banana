@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Owen
+- 👀 I’m interested in the void
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me owen.powell2@student.tdsb.on.ca
+- 😄 Pronouns: He/Him
